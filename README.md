@@ -3,3 +3,4 @@
 - [https://x.com/McVance25](https://x.com/McVance25)
 - [https://medium.com/@McVance25](https://medium.com/@McVance25)
 - [https://mcvance25.quora.com](https://mcvance25.quora.com)
+- [https://medium.com/@McVance25/amds-zen-5-processors-will-arrive-on-july-31st-2ea6ce4f2292](https://medium.com/@McVance25/amds-zen-5-processors-will-arrive-on-july-31st-2ea6ce4f2292)
